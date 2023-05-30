@@ -12,7 +12,7 @@ Throughout the book, we'll provide real-life examples and case studies of indivi
 
 Whether you're a busy professional, a stay-at-home parent, or someone looking to improve your overall wellbeing, this book offers practical guidance and support to help you achieve a healthy work-life balance. By the end, you'll have the tools and strategies needed to achieve fulfillment in both your personal and professional lives, leading to increased happiness, productivity, and overall satisfaction.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 Work-life balance
