@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Psychology of Work-Life Balance
-====================================================
 
 Understanding the psychology of work-life balance is crucial for achieving balance and fulfillment in your personal and professional life. In this chapter, we will explore the different factors that impact work-life balance effectiveness, common barriers to achieving balance and fulfillment, and the role of values and priorities in work-life balance.
 

@@ -1,5 +1,3 @@
-Chapter 5: Setting Boundaries and Managing Time
-=======================================
 
 Effective work-life balance requires the ability to set clear boundaries between work and personal life, and manage time effectively to achieve productivity and fulfillment in both areas. In this chapter, we will explore strategies for setting boundaries, managing time, and prioritizing tasks based on values and goals.
 

@@ -1,5 +1,3 @@
-Chapter 8: Managing Change and Transitions
-==================================
 
 Change and transitions are inevitable parts of life, and can have a significant impact on work-life balance. Whether we are experiencing changes in our personal life or navigating transitions in our career, it is important to develop strategies for managing these challenges and adapting to new circumstances. In this chapter, we will explore the impact of change and transitions on work-life balance, strategies for managing transitions, and building resilience during times of uncertainty.
 

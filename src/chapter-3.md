@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Own Work-Life Balance Needs and Goals
-=======================================================
 
 Assessing your own work-life balance needs and goals is crucial for achieving balance and fulfillment in your personal and professional life. In this chapter, we will explore strategies for assessing your own work-life balance needs and goals, identifying areas of imbalance and sources of stress, and creating a plan for achieving balance and fulfillment.
 

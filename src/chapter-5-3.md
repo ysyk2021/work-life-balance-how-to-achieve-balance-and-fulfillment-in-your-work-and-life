@@ -1,5 +1,3 @@
-Prioritizing Tasks and Activities Based on Values and Goals
-====================================================================================================
 
 Setting boundaries and managing time effectively is critical for achieving work-life balance and overall well-being. In this chapter, we will explore the importance of setting boundaries and managing time, provide tips for prioritizing tasks and activities based on values and goals, and highlight the benefits of effective time management.
 

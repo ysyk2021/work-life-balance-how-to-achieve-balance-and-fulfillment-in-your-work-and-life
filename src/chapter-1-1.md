@@ -1,5 +1,3 @@
-Defining work-life balance and its importance in modern life
-==================================================================================================
 
 Work-life balance refers to the idea of achieving a sustainable balance between one's work and personal life, such that both areas are given adequate attention and energy. This can include managing one's time effectively, setting priorities and boundaries, and pursuing meaningful work and hobbies that align with one's values and passions. Work-life balance is increasingly important in modern life, as individuals face increasing demands from work, family, and other responsibilities.
 

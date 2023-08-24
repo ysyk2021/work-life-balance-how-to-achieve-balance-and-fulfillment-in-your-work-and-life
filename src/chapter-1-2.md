@@ -1,5 +1,3 @@
-Historical perspectives on work-life balance theory and practice
-======================================================================================================
 
 The idea of achieving work-life balance has been around for centuries, with historical examples dating back to Ancient Greece and Rome. However, it wasn't until the Industrial Revolution that work-life balance became a widely recognized issue in modern society. In this chapter, we will explore the historical perspectives on work-life balance theory and practice.
 

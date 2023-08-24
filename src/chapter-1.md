@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Work-Life Balance
-====================================
 
 Achieving work-life balance is a critical component of modern life, impacting personal and professional well-being. In this chapter, we will explore the definition of work-life balance, historical perspectives on work-life balance theory and practice, and the challenges and opportunities of achieving balance and fulfillment.
 

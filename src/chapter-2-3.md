@@ -1,5 +1,3 @@
-Understanding the role of values and priorities in work-life balance
-==========================================================================================================================
 
 Work-life balance is often seen as a goal to be achieved, but it is important to understand the psychology behind it in order to achieve it successfully. One key aspect of work-life balance is understanding how our values and priorities impact our ability to balance work and personal life. In this chapter, we will explore the role of values and priorities in work-life balance.
 
