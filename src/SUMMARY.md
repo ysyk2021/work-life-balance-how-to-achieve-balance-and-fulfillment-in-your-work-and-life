@@ -35,3 +35,4 @@
   - [Building resilience and managing stress during times of uncertainty](chapter-8-3.md)
 - [Conclusion: Mastering Work-Life Balance and Fulfillment](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
