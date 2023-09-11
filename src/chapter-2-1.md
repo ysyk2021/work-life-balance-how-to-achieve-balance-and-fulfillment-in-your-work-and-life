@@ -1,5 +1,4 @@
-Chapter 4: Recognizing the Different Factors that Impact Work-Life Balance Effectiveness
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the various factors that can significantly impact the effectiveness of work-life balance. By understanding these factors, you can identify areas in your life that may need attention and make necessary adjustments to achieve a healthier and more fulfilling work-life balance.
 
